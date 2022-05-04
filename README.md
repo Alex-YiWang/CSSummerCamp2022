@@ -9,6 +9,8 @@
 
 【报名截止：2022.5.19】[清华大学交叉信息研究院2022年优秀大学生夏令营](https://admission.iiis.tsinghua.edu.cn/2022/)
 
+【报名截止：无】[清华大学深圳国际研究生院集成电路课题组2023级推免生招生信息](https://mp.weixin.qq.com/s/y1CHlSZnlzSvrnZ6CL2TBQ)
+
 # 北京大学
 【报名截止：2022.6.10】[北京大学前沿交叉学科研究院夏令营](http://www.aais.pku.edu.cn/tongzhi/shownews.php?id=1460)
 
